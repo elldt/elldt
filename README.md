@@ -1,5 +1,5 @@
-##Ola🐈‍⬛
-##Me chamo Elloah
+## Ola🐈‍⬛
+## °Me chamo Elloah
 
 - 🧑‍🎓Sou estudante.
 - 📚Gosto de aprender coisas novas.
