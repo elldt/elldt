@@ -1,12 +1,12 @@
 ##Ola🐈‍⬛
 ##Me chamo Elloah
 
--🧑‍🎓Sou estudante.
--📚Gosto de aprender coisas novas.
--🎮Gosto de jogos.
--📖Gosto de livros de romances/ ficção.
--💻Estou aprendendo programação.
--🔌Estou estudando Alura/JacaScript.
+- 🧑‍🎓Sou estudante.
+- 📚Gosto de aprender coisas novas.
+- 🎮Gosto de jogos.
+- 📖Gosto de livros de romances/ ficção.
+- 💻Estou aprendendo programação.
+- 🔌Estou estudando Alura/JacaScript.
 
 
 
