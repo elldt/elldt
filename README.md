@@ -8,7 +8,7 @@
 - 🔌Estou estudando Alura / JacaScript.
 
 
-![](https://media1.tenor.com/m/E2N59cNeDwkAAAAd/sonic-meme-sonic-the-hedgehog.gif)
+![](https://media1.tenor.com/m/E2N59cNeDwkAAAAd/sonic-meme-sonic-the-hedgehog.gif)  ![](https://media1.tenor.com/m/jRN3HQJWSogAAAAC/shadow-the-hedgehog-sonic-3-o-filme.gif)
 
 ## Entre em contato💼
 elloah.dutra@escola.pr.gov.br
