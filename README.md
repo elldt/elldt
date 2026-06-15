@@ -12,5 +12,7 @@ Gosto de livros de romances/ ficção.
 
 Estou estudando alura.
 
-Entrar em contato em : elloah.dutra@escola.pr.gov.br
+https://tenor.com/pt-BR/view/sonic-movie-3-shadow-punch-punching-fist-gif-9038064719134268798
+
+Entrar em contato: elloah.dutra@escola.pr.gov.br
 -
