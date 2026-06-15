@@ -8,9 +8,7 @@
 - 🔌Estou estudando Alura/JacaScript.
 
 
-
-##Entrar em contato🫸
-elloah.dutra@escola.pr.gov.br
-
-
 ![](https://media1.tenor.com/m/E2N59cNeDwkAAAAd/sonic-meme-sonic-the-hedgehog.gif)
+
+## Entre em contato:
+elloah.dutra@escola.pr.gov.br
