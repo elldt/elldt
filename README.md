@@ -12,3 +12,5 @@ Gosto de livros de romances/ ficção.
 
 Estou estudando alura.
 
+Entrar em contato em : elloah.dutra@escola.pr.gov.br
+-
